@@ -1,2 +1,2 @@
 # CONTACTS
-Tg Channel: 
+Tg Channel: t.me/ochenkrutoichannel
